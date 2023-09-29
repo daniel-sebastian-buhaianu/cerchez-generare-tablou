@@ -1,0 +1,1 @@
+# cerchez-generare-tablou
